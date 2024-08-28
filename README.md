@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aprentzz
+- 👀 I’m interested in SEO
+- 🌱 I’m currently learning Finance and Technology 
+- I’m looking to collaborate on SEO projects
